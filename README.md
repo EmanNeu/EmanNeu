@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: his
 - ⚡ Fun fact: i like games
 -->
+Emmanuel 
+Loyola School
+Northeastern University  
