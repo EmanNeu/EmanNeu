@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: his
 - ⚡ Fun fact: i like games
 -->
+
+Resume 
+Loyola School
+ NEU
